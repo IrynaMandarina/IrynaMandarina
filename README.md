@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IrynaMandarina
-- 👀 I’m interested in finnding talanted people
+- 👀 I’m interested in finding talanted people
 - 🌱 I’m currently learning recruiting
 - 💞️ I’m looking to collaborate on karaoke
 - 📫 How to reach me telegram @Irina_it_recruiter
